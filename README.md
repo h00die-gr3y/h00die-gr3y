@@ -1,4 +1,7 @@
-### Hi there 👋
+### Hi there, I am @h00die.gr3y
+🔭 Exploring and roaming the Cyber Digital World...
+
+📫 h00die.gr3y@gmail.com
 
 <!--
 **h00die-gr3y/h00die-gr3y** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
