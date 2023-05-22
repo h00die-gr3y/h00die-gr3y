@@ -1,4 +1,4 @@
-### Hi there, I am @h00die.gr3y
+### Hi there, I am @h00die-gr3y
 🔭 Exploring and roaming the Cyber Digital World...
 
 📫 h00die.gr3y@gmail.com
